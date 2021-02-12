@@ -8,3 +8,4 @@ FEJEZZE MÁR BE!!!
 ????
 Csak azért se!
 Miért kell ilyen hülyeséggel húzni az időt?
+Legyen már vége...

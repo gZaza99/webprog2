@@ -4,3 +4,4 @@ Valaki bírja ezt a palit?
 Szerintem ő se magát :'D
 Na az úgy jó :'D :'D
 "zzzzzzzzzzzzzzzzzzzzzz..."
+FEJEZZE MÁR BE!!!
